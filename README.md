@@ -1,2 +1,0 @@
-# stunning-potato
-lima kurs
